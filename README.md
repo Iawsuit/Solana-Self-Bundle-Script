@@ -11,3 +11,5 @@ Selling a script that uses JITO Bundles to add liquidity to your token and makes
 
 No time wasters please, will help you get set up + install required dependencies.
 Add @nvyxorath on discord or @nvyonsol on Tele
+
+I am not liable for any illegal actions done through my product.
