@@ -20,4 +20,4 @@ No time wasters please, will help you get set up + install required dependencies
 Add @nvyxorath on discord or @nvyonsol on Tele
 
 I am not liable for any illegal actions done through my product.
-EDIT 3/8/2024: Don't buy from these new scammer's copying my project word for word, I have vouches and demo videos dont lose your money stupidly.
+EDIT 3/8/2024: Don't buy from these new scammer's copying my project word for word, I have vouches and demo videos dont lose your money stupidly from people like bigmovers who just resells code and its not even working
